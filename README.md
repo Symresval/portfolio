@@ -1,2 +1,2 @@
 # portfolio
-// https://a-s9.my.canva.site/portfolio-samy-ichalalene#page-1
+// https://a-s9.my.canva.site/portfolio-samy-ichalalene
